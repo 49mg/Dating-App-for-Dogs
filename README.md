@@ -5,4 +5,4 @@ third page is chat pages have All dogs contact like Facebook this contact like y
 under it we have the chats all your contact pictures of they and your messages
 
 
-/home/mg/Pictures/dribbble projact/dateing-dogs-applications.jpg
+
